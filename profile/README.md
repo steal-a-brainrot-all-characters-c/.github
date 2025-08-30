@@ -1,4 +1,4 @@
-# ⚙️ steal a brainrot cheats limited executor
+# ⚙️ steal a brainrot all characters unlock
 
 
 ---
